@@ -4,22 +4,22 @@ RockStar 公司，全称 RockStar Games，成立于 2005 年，是一家专注�
 
 ## 游戏产品
 
-![image-20231126134001244](C:\Users\张贤豪\AppData\Roaming\Typora\typora-user-images\image-20231126134001244.png)
+![](C:\Users\张贤豪\Pictures\image-20231126134001244.png)
 
 RockStar 公司开发了一系列备受瞩目的音乐游戏，其中最具代表性的是 "GTA"（Grand Theft Auto）系列。这个系列的游戏以其开放世界设计和丰富的游戏内容受到了全球玩家的喜爱。此外，RockStar 公司还开发了其他如 "Red Dead Redemption"、"Max Payne"、"Bully" 等知名游戏。
 
 ## 创新与特色
 
-![image-20231126134044823](C:\Users\张贤豪\AppData\Roaming\Typora\typora-user-images\image-20231126134044823.png)RockStar 公司的游戏以其独特的游戏设计和创新的玩法著称。在游戏中，玩家可以自由探索游戏世界，进行各种任务和活动。此外，RockStar 公司的游戏还注重角色塑造和故事情节，让玩家能够深入体验游戏中的角色和故事。
+![](C:\Users\张贤豪\Pictures\image-20231126134044823.png)RockStar 公司的游戏以其独特的游戏设计和创新的玩法著称。在游戏中，玩家可以自由探索游戏世界，进行各种任务和活动。此外，RockStar 公司的游戏还注重角色塑造和故事情节，让玩家能够深入体验游戏中的角色和故事。
 
 ## 市场地位
 
-![image-20231126134056816](C:\Users\张贤豪\AppData\Roaming\Typora\typora-user-images\image-20231126134056816.png)RockStar 公司以其出色的游戏作品在全球范围内拥有广泛的影响力。其游戏作品经常获得各种游戏奖项，同时销量也十分惊人。此外，RockStar 公司的游戏也成为了流行文化的代表，对电影、电视、音乐等多个领域产生了深远的影响。
+![](C:\Users\张贤豪\Pictures\image-20231126134056816.png)RockStar 公司以其出色的游戏作品在全球范围内拥有广泛的影响力。其游戏作品经常获得各种游戏奖项，同时销量也十分惊人。此外，RockStar 公司的游戏也成为了流行文化的代表，对电影、电视、音乐等多个领域产生了深远的影响。
 
 ## 全球影响
 
-![image-20231126134105836](C:\Users\张贤豪\AppData\Roaming\Typora\typora-user-images\image-20231126134105836.png)作为全球最大的音乐公司之一，RockStar公司的音乐影响力遍及世界各个角落。他们的音乐作品在全球范围内广泛传播，深受各国乐迷的喜爱。RockStar公司通过音乐搭建起文化交流的桥梁，增进不同国家和民族之间的相互理解与友谊。
+![](C:\Users\张贤豪\Pictures\image-20231126134105836.png)作为全球最大的音乐公司之一，RockStar公司的音乐影响力遍及世界各个角落。他们的音乐作品在全球范围内广泛传播，深受各国乐迷的喜爱。RockStar公司通过音乐搭建起文化交流的桥梁，增进不同国家和民族之间的相互理解与友谊。
 
 ## 未来展望
 
-![R星出品 素材无水印-bilibili(B站)无水印视频解析——YIUIOS易柚斯](https://ts1.cn.mm.bing.net/th/id/R-C.485f972fb28c5976fa9b23bd59b91fb3?rik=tQGjnxbExVEstg&riu=http%3a%2f%2fi2.hdslb.com%2fbfs%2farchive%2f7c4676f9e3b5ea7b400b334ef67191123b6fe47f.jpg&ehk=kEOBPIKaTq2LcdYgqJJ%2bynQuR22FWygGk%2fNrw3Vx0oQ%3d&risl=&pid=ImgRaw&r=0)随着游戏市场的不断发展和变化，RockStar 公司也在不断创新和探索。未来，RockStar 公司将继续致力于为玩家带来更多优质的游戏作品，同时也会通过新技术和新平台的发展，为玩家带来更加丰富和沉浸式的游戏体验。
+![](C:\Users\张贤豪\Pictures\Screenshots\R-C.jpg)随着游戏市场的不断发展和变化，RockStar 公司也在不断创新和探索。未来，RockStar 公司将继续致力于为玩家带来更多优质的游戏作品，同时也会通过新技术和新平台的发展，为玩家带来更加丰富和沉浸式的游戏体验。
